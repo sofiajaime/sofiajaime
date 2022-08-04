@@ -6,4 +6,4 @@
 - 📚 I'm interested in quantitative methods, social sciences and data analysis.
 - 💼 I'm a Researcher @Research and Expertise Centre of Survey Methodology, Pompeu Fabra University.
 - 📫 How to reach me: sofiajaimemoschin@gmail.com
-- 😄 More about me on [My Website](https://www.sofiajaime.com)
+- 😄 More about me: [sofiajaime.com](https://www.sofiajaime.com)
